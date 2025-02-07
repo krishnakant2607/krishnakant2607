@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @krishnakant2607  
+- 👀 I’m interested in AI/ML, Deep Learning, Quantitative Finance, and Startup Ecosystems.   
+- 📫 How to reach me: [LinkedIn](https://www.linkedin.com/in/your-profile/) | Email: krishnachourey786@gmail.com  
