@@ -1,3 +1,2 @@
 - 👋 Hi, I’m @krishnakant2607  
-- 👀 I’m interested in AI/ML, Deep Learning, Quantitative Finance, and Startup Ecosystems.   
-- Email: krishnanvs786@gmail.com  
+
